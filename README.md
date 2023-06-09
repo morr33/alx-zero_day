@@ -1,1 +1,1 @@
-Do hard things now
+Do hard things all day
