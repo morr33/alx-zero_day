@@ -1,1 +1,1 @@
-Do hard things all day
+Do hard things only
